@@ -1,0 +1,1 @@
+# diplomaticmv-AppCanvasComPowerPlataform
